@@ -41,6 +41,11 @@ used.
 
 #### Area report:
 ![Screenshot (54)](https://github.com/user-attachments/assets/88fab233-b64a-4fa8-a82e-0f9ff18dbfae)
+
+<br>
+<br>
+<br>
+<br>
 <br>
 <br>
 
